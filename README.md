@@ -6,7 +6,7 @@
   
 ![](https://komarev.com/ghpvc/?username=girlbrute&color=DB85B2)
 
-[melusie](https://youtu.be/dQw4w9WgXcQ?si=to-2v1QZtpOZVWIj) ʚ♡ɞ any, it/she pref
+[melusie](https://youtu.be/dQw4w9WgXcQ?si=to-2v1QZtpOZVWIj) OR [shrimpo](https://youtu.be/dQw4w9WgXcQ?si=to-2v1QZtpOZVWIj) ʚ♡ɞ any, it/she pref
 
 autism+more i dont wanna publicly share. freq unstable, [iwc](https://youtu.be/dQw4w9WgXcQ?si=to-2v1QZtpOZVWIj) and be mindful 
 
