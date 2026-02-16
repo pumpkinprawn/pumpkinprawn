@@ -20,9 +20,6 @@ currently hyperfixtated on genshin impact and dandys world, its more likely ill 
 
 i have no dni, i block anyone i dont like. i expect the same of others but cannot stop you from doing what you do. 
 
-[<img src=https://files.catbox.moe/83ln5a.gif>](https://github.com/Cannibalistic-Ways-Of-Life)
-
-stamp by lovely [sal](https://github.com/Cannibalistic-Ways-Of-Life) <3 /p
 
 
 [<img src=https://files.catbox.moe/5sg0jt.png>](https://youtu.be/dQw4w9WgXcQ?si=to-2v1QZtpOZVWIj)
