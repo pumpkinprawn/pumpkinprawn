@@ -8,13 +8,13 @@
 
 [melusie](https://youtu.be/dQw4w9WgXcQ?si=to-2v1QZtpOZVWIj) OR [shrimpo](https://youtu.be/dQw4w9WgXcQ?si=to-2v1QZtpOZVWIj) ʚ♡ɞ any, it/she pref
 
-autism+more i dont wanna publicly share. freq unstable, [iwc](https://youtu.be/dQw4w9WgXcQ?si=to-2v1QZtpOZVWIj) and be mindful 
+autism+more. freq unstable, [iwc](https://youtu.be/dQw4w9WgXcQ?si=to-2v1QZtpOZVWIj) and be mindful 
 
 dont copy my ponies. inspiration is fine, just dont copy. be original. c+h fine always, im usually with oomfies anyway!
 
 offtab 99% of the time, if i dont reply to a whisper its because ponytown wont let me. i wont help with party limits, sorry!
 
-proudly [proship](https://proshipresourcesaccessible.carrd.co/)&darkship! ask me about my faves if you want! 
+[proship](https://proshipresourcesaccessible.carrd.co/)&darkship!
 
 currently hyperfixtated on genshin impact and dandys world, its more likely ill be talking about these
 
