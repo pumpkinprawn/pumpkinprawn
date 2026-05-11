@@ -16,7 +16,7 @@ offtab 99% of the time, if i dont reply to a whisper its because ponytown wont l
 
 [proship](https://proshipresourcesaccessible.carrd.co/)&darkship!
 
-currently hyperfixtated on genshin impact and dandys world, its more likely ill be talking about these
+currently hyperfixtated on dandys world, its more likely ill be talking about it!
 
 i have no dni, i block anyone i dont like. i expect the same of others but cannot stop you from doing what you do. 
 
