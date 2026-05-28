@@ -1,25 +1,39 @@
 <div align="center">
-  
-[<img src=https://files.catbox.moe/99kc7x.png>](https://youtu.be/dQw4w9WgXcQ?si=to-2v1QZtpOZVWIj)
-[<img src=https://files.catbox.moe/5sg0jt.png>](https://youtu.be/dQw4w9WgXcQ?si=to-2v1QZtpOZVWIj)
-[<img src=https://i.postimg.cc/yYH5CvLN/Untitled258-20260201091544.png>](https://youtu.be/dQw4w9WgXcQ?si=to-2v1QZtpOZVWIj)
-  
-![](https://komarev.com/ghpvc/?username=girlbrute&color=DB85B2)
 
-[melusie](https://youtu.be/dQw4w9WgXcQ?si=to-2v1QZtpOZVWIj) OR [shrimpo](https://youtu.be/dQw4w9WgXcQ?si=to-2v1QZtpOZVWIj) ʚ♡ɞ any, it/she pref
+!!I will not help with party limits, I am already in a party. I will ignore all whispers related to that.!!<br> !!Also, do not copy my ponies. Light inspiration is okay but do not straight up copy!!
+ 
+ <img src="https://files.catbox.moe/ttaoiq.png" align="center">
+<img src="https://files.catbox.moe/a57qqb.png" align="left" width="35%"><p align="center">
 
-autism+more. freq unstable, [iwc](https://youtu.be/dQw4w9WgXcQ?si=to-2v1QZtpOZVWIj) and be mindful 
+${\textsf{\color{#8F1E25}shrimpo}}$ ${\textsf{\color{#EEEEE0}or}}$ ${\textsf{\color{#D52F2F}gangle}}$  <br>
+${\textsf{\color{#EEEEE0}it he she . bpdtism}}$<br>
+${\textsf{\color{#EEEEE0}antihara anticensorship}}$<br>
+${\textsf{\color{#EEEEE0}fictionkin + otherkin}}$<br>
+${\textsf{\color{#EEEEE0}i use me/i for kins}}$<br>
 
-dont copy my ponies. inspiration is fine, just dont copy. be original. c+h fine always, im usually with oomfies anyway!
+<img src="https://files.catbox.moe/6e8v0t.png" align="center" width="40%">
 
-offtab 99% of the time, if i dont reply to a whisper its because ponytown wont let me. i wont help with party limits, sorry!
+ <details>
+  <summary>${\textsf{\color{#20147A}interests}}$
+</summary>
+  ${\textsf{\color{#241CD1}dandys world, date everything, genshin}}$<br> 
+  ${\textsf{\color{#241CD1}adventure time, steven universe, bsd}}$<br>
+   ${\textsf{\color{#3732D3}tadc, omori, saihate station}}$<br>
+   ${\textsf{\color{#3732D3}this isnt all i just dont feel like listing more lol}}$<br>
+</details> 
 
-[proship](https://proshipresourcesaccessible.carrd.co/)&darkship!
+<img src="https://files.catbox.moe/x2fz0s.png" align="center" width="25%">
+ 
+ <details>
+  <summary>${\textsf{\color{#20147A}dni}}$
+</summary>
+  ${\textsf{\color{#241CD1}allthough i believe dnis dont work i figured id make one anyways.}}$<br> 
+  ${\textsf{\color{#241CD1}i block freely}}$<br>
+   ${\textsf{\color{#3732D3}tcc, cluster b demonizers yes this includes-}}$<br>
+   ${\textsf{\color{#3732D3}-calling people you dont like narcissists}}$<br>
+   ${\textsf{\color{#3732D3}fakeclaimers, cringe culture}}$<br>
+   ${\textsf{\color{#3732D3}forsaken+starters stans jst dont mention it near me. }}$<br>
+</details> 
 
-currently hyperfixtated on dandys world, its more likely ill be talking about it!
 
-i have no dni, i block anyone i dont like. i expect the same of others but cannot stop you from doing what you do. 
-
-
-
-[<img src=https://files.catbox.moe/5sg0jt.png>](https://youtu.be/dQw4w9WgXcQ?si=to-2v1QZtpOZVWIj)
+ <img src="https://files.catbox.moe/1zcepo.png" align="center">
