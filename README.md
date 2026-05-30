@@ -1,6 +1,6 @@
 <div align="center">
 
-!!I will not help with party limits, I am already in a party. I will ignore all whispers related to that.!!<br> !!Also, do not copy my ponies. Light inspiration is okay but do not straight up copy!!
+!!I will not help with party limits, I am already in a party. I will ignore all whispers related to that.!!<br> !!Also, do not copy my ponies. Light inspiration is okay but do not straight up copy!!<br> afk 99% of time, sorry if i miss an actual whisper!
  
  <img src="https://files.catbox.moe/ttaoiq.png" align="center">
 <img src="https://files.catbox.moe/a57qqb.png" align="left" width="35%"><p align="center">
